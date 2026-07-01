@@ -48,6 +48,7 @@ $\Large \textrm{\textbf{its a buncha chiptunes x3}}$
 ideally i self host more in the future !!!!!\
 i hate big companies and data tracking and all that anti human bull shit consumerism product evil EVIL DEATH GRRRR
 
+[MY WEB SITE](https://sav.estate/) - where this dang ol description even came from !!\
 [yootoob](https://www.youtube.com/Savestate) - i post my bull shit here .\
 [yoo2ube](https://www.youtube.com/user/TheMegaAnimator2000) - this is old but sometimes used i think . NOT INTERESTING CONTENT\
 [sondclod...](https://soundcloud.com/Savestate) - music !!!! i put a lot of my soul and energy into these !!!!!! really !!\
